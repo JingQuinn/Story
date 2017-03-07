@@ -7,4 +7,4 @@ Reason to get a dog. First day to have a dog. Smart dog.
 
 Chapter 2 -- Puppy period
 
-Funny story about Max when he was puppy. Such as play plaster.
+Funny story about Max when he was puppy. Such as play plaster, learn command, play bags, destroy hair dryer etc.
