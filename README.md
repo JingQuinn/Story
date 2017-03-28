@@ -11,5 +11,4 @@ Funny story about Max when he was puppy. Such as play plaster, learn command, pl
 
 Chapter 3 -- Sickness
 
-stomach problem, looking for help. Got good advices and help from neighbor. know the reason cause it, but too late 
-for Max.
+stomach problem, looking for help. Got good advices and help from neighbor. know the reason cause it for Max. Max grew up, did good job.
